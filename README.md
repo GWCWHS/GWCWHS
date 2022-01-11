@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GWCWHS
+- 👀 I’m interested in theatre (especially technical!)
+- 🌱 I’m currently learning life.
+- 💞️ I’m looking to collaborate on a GWC project
+- 📫 How to reach me ...don't.
